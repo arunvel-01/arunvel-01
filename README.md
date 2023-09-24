@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **arunvelv9253@gmail.com**
 
-- 📄 Know about my experiences [https://www.canva.com/design/DAFex_Yv7Kw/qvEh7tOwO8afy-m6qWn5wQ/edit?utm_content=DAFex_Yv7Kw&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton](https://www.canva.com/design/DAFex_Yv7Kw/qvEh7tOwO8afy-m6qWn5wQ/edit?utm_content=DAFex_Yv7Kw&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+- 📄 Know about my experiences [https://www.canva.com/design/DAFex_Yv7Kw/qvEh7tOwO8afy-m6qWn5wQ/edit?utm_content=DAFex_Yv7Kw&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton](https://resume.io/r/wAnosOcyA)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
