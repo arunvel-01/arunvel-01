@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **arunvelv9253@gmail.com**
 
-- 📄 Know about my experiences - [Click Here](https://resume.io/r/wAnosOcyA)
+- 📄 Know about my experiences [ - Click Here](https://resume.io/r/wAnosOcyA)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
